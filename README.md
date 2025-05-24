@@ -3,12 +3,12 @@
 ### <div align="center"> 1FopzGbxMJm1Bu1nt1w1JYgAKBATbCvGgj </div>
 
 ## 📜 NOTE:
-"Ketika tiga cermin memantulkan cahaya yang sama, bayangan itu masih berbohong.
+> _"Ketika tiga cermin memantulkan cahaya yang sama, bayangan itu masih berbohong."_
 
-Namun, jika kau memutar lidah sang ular dua kali dan membaca bisikan angin dalam angka,
-maka pintu pertama akan terbelah.
+> _"Namun, jika kau memutar lidah sang ular dua kali dan membaca bisikan angin dalam angka,
+maka pintu pertama akan terbelah."_
 
-Tapi hati-hati... angka yang terlihat bukanlah angka yang benar,
-karena hanya mereka yang melihat huruf di dalam angka yang bisa membaca rahasia sejati."*
+> _"Tapi hati-hati... angka yang terlihat bukanlah angka yang benar,
+karena hanya mereka yang melihat huruf di dalam angka yang bisa membaca rahasia sejati."_
 
-🗝️ "Tiga lapisan ilusi, satu lapisan pengacau, satu kunci untuk menyingkap semuanya. Tapi siapa yang memegang kunci? Bukan kamu… belum."
+> _"Tiga lapisan ilusi, satu lapisan pengacau, satu kunci untuk menyingkap semuanya. Tapi siapa yang memegang kunci? Bukan kamu… belum."_
